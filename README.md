@@ -1,4 +1,4 @@
 # luvMycoco
 merryChristmasBabe
 
-photos for my love.
+photo album for my love.
